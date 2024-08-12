@@ -4,7 +4,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning Data Analytics:Microsoft Excel,Power Bi,SQL,Tableau,Pyhton
 - 💞️ I’m looking to collaborate on becoming a tech expert and an entrepreneur
-- 📫 How to reach me Email: williamsifebuche@gmail.com
+- 📫 How to reach me FACEBOOK: https://www.facebook.com/profile.php?id=100073436844265 and EMAIL: williamsifebuche@gmail.com
 - 😄 Pronouns:He
 - ⚡ Fun fact: Addicted to Personal development and Music
 
