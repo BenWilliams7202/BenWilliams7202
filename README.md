@@ -1,5 +1,6 @@
-##### 👋 Hi,
+##### 👋 Hi Dear,
 - This is Benedict Ifebuche Williams
+- I am an Aspiring Data Analyst.
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning Data Analytics:Microsoft Excel,Power Bi,SQL,Tableau,Pyhton
 - 💞️ I’m looking to collaborate on becoming a tech expert and an entrepreneur
