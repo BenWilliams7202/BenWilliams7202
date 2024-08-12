@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on becoming a tech expert and an entrepreneur
 - 📫 How to reach me Email: williamsifebuche@gmail.com
 - 😄 Pronouns:He
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Addicted to Personal development and Music
 
 <!---
 BenWilliams7202/BenWilliams7202 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
