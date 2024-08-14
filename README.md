@@ -4,7 +4,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning Data Analytics:Microsoft Excel,Power Bi,SQL,Tableau,Pyhton
 - 💞️ I’m looking to collaborate on becoming a tech expert and an entrepreneur
-- 📫 How to reach me. Click on [Facebook](https://www.facebook.com/profile.php?id=100073436844265) , [Linkedin](https://www.linkedin.com/in/ben-williams-b3b77b260?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) or [Email](williamsifebuche@gmail.com)
+- 📫 How to reach me. Click on [Facebook](https://www.facebook.com/profile.php?id=100073436844265) or [Linkedin](https://www.linkedin.com/in/ben-williams-b3b77b260?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 😄 Pronouns:He
 - ⚡ Fun fact: Addicted to Personal development and Music
 
